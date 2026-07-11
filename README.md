@@ -1,5 +1,2 @@
-# miss u, r
-git add Letter.jpeg
-git commit -m 'add jpeg file'
-git remote add origin https://github.com/missing-you.git
-git push -u origin master
+# bello
+
