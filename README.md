@@ -6,7 +6,7 @@ Am mințit aparent am doar o melodie de a mea pentru că nu găseam acordurile n
 Anyway, [here they are](https://soundcloud.com/ollie-oliber/sets/one-take-ballads)
 
 
-Câteva dintre aceste melodii îmi doream să ți le fi cântat cât încă eram împreună pentru că știam că îți plac, dar n-am mai apucat. Așa că am vrut să o fac măcar acum. Finish what I started. Altele le-am cântat pentru că am aflat ulterior că îți plac. Iar altele pentru că m-am gândit că ți-ar plăcea să le auzi, și mă făceau să mă gândesc la tine
+Câteva dintre aceste melodii îmi doream să ți le fi cântat cât încă eram împreună pentru că știam că îți plac, dar n-am mai apucat. Așa că am vrut să o fac măcar acum. Finish what I started. Altele le-am cântat pentru că am aflat ulterior că îți plac. Iar altele pentru că m-am gândit că ți-ar plăcea să le auzi, și mă făceau să mă gândesc la tine.
 
 
 Vreau să fiu transparent și onest cu tine și să-ți spun că ăsta nu este un attempt la a te face să get soft for me or something, to reconcile, să te fac de cap. Doar voiam să exprim și să-ți arăt the admiration and endearment I still have for you.
@@ -15,8 +15,7 @@ Vreau să fiu transparent și onest cu tine și să-ți spun că ăsta nu este u
 Nu vreau să te simți presată să răspunzi în vreun fel, voiam doar să-ți arăt că te văd și te aud în sfârșit. I used to be dismissive of what you liked and I regret that I was such a prick, and I've started stepping back from those ways of mine now.
 
 
-Și nu vreau să iei nimic altceva din toate astea decât că te voi iubi mereu foarte mult și că sunt foarte recunoscător că m-ai ales să-ți fiu alături atâta timp. Am învățat multe de la tine, inclusiv să cânt melodii foarte frumoase la chitară acum (asta mai mult prin extensia ta). Thank you. Îmi vei lipsi
-
+Și nu vreau să iei nimic altceva din toate astea decât că te voi iubi mereu foarte mult și că sunt foarte recunoscător că m-ai ales să-ți fiu alături atâta timp. Am învățat multe de la tine, inclusiv să cânt melodii foarte frumoase la chitară acum (asta mai mult prin extensia ta). Thank you. Îmi vei lipsi.
 
 Am vrut cu acest proiect doar să pun undeva what I've been feeling, pentru că mă presa să tot țin în mine. În același timp, voiam să imortalizez cât de inspirat am putut fi de tine și tot ce a fost între noi, pentru că n-am mai cântat de vreo doi ani. A lot of love in my heart for you. Iar acest proiect l-am terminat într-o seara. 9 melodii, până la 4 dimineața (celelalte le-am terminat cateva zile înainte). I will forever admire you greatly.
 
