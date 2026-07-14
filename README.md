@@ -2,8 +2,7 @@
 <img width="400" height="650" alt="Letter" src="https://github.com/user-attachments/assets/a89ab92a-2079-4862-a216-c13cf6dad6ed" />
 </p>
 
-Am mințit aparent am doar o melodie de a mea pentru că nu găseam acordurile nicăieri pentru altele ce ascultam eu (lame). Scuze\
-
+Am mințit aparent am doar o melodie de a mea pentru că nu găseam acordurile nicăieri pentru altele ce ascultam eu (lame). Scuze
 
 Câteva dintre aceste melodii îmi doream să ți le fi cântat cât încă eram împreună pentru că știam că îți plac, dar n-am mai apucat. Așa că am vrut să o fac măcar acum. Finish what I started. Altele le-am cântat pentru că am aflat ulterior că îți plac. Iar altele pentru că m-am gândit că ți-ar plăcea să le auzi, și mă făceau să mă gândesc la tine.
 
